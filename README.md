@@ -20,7 +20,7 @@ TO KIAN:
   
   REEL KINGS on egg2 
   
-  eggs burning in fire and crackling
+  eggs burning in fire and crackling (KFC smell)
   
   fade into sceen and beat:
   
@@ -35,7 +35,7 @@ TO KIAN:
  This is to you all.
  Every last one.
  I put this on everything and everyone that I love...
- Every last muthafucken one.
+ Every last muthafucken one
  
  TY MIXES IN THAT PERSIAN BADASS BACKDROP NOW
  
@@ -44,4 +44,21 @@ TO KIAN:
 
  <iframe width="560" height="315" src="https://www.youtube.com/embed/Wc-wilismrQ" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe> start at 00:52
  
+
+ To those who hate me, thank you.
+ For you have made my heart strong.
  
+ For those who love me, thank you.
+ You make my heart worth beatin
+ 
+ To those who have left me, thank you.
+ You taught me that life has to change.
+ 
+ And to those who have stuck with me, I am you.
+ We are one. Always will be.
+ 
+ Or something like that...
+ 
+ _-Darius the Great.
+ 
+
